@@ -1,0 +1,1 @@
+Esse projeto foi bem desafiador porque o figma não estava abrindo no meu computador, então fui fazendo apenas olhando para a imagem, acho que isso me fez pensar mais e ser mais criativo também, tensei seguir o padrão da original.
